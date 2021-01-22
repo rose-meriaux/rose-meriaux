@@ -28,8 +28,9 @@ My pronouns are she/her, and I am a proud intersectional feminist.
 - Doodling, and going to the museum at night to draw the artwork of others.
 - Makeovers of all kinds - I just love when things get better, in any way! 
 - Singing all the time - if I'm singing while you're talking to me, please don't mind, I probably didn't even realize I was doing it cause I was focusing on what you were saying.
-- Also: languages, poetry, second hand & vintage clothes & furniture, reading, gardening...
+- Also: languages, poetry, second hand & vintage clothes & furniture, longboarding, reading, gardening...
 
 🙈 Things that make me uncomfortable 
+- Walking in the dark. Not scared of the dark, as long as I'm standing still!
 - When the whole room claps together at the end of a play or any live performance.
-- Feets.
+- Feets (I mean, gross).
