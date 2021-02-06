@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-### About my professional (borderline not) self:
+### About my (mostly) professional self:
 - 🔬 I’m a project leader who likes to get to the base of things - like the code my team writes.
 - 🎈 I'm enthusiastic and commited to whatever I set my mind to!
 - ⚽️ I'm a team player and take great pride in seeing my team members happy and satisfied.
@@ -31,6 +31,6 @@ My pronouns are she/her, and I am a proud intersectional feminist.
 - Also: languages, poetry, second hand & vintage clothes & furniture, longboarding, reading, gardening...
 
 🙈 Things that make me uncomfortable 
-- Walking in the dark. Not scared of the dark, as long as I'm standing still!
+- Moving around in the dark. Not scared of the dark, as long as I'm staying still!
 - When the whole room claps together at the end of a play or any live performance.
 - Feets (I mean, gross).
