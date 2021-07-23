@@ -15,14 +15,14 @@ Here are some ideas to get you started:
 -->
 
 ### About my (mostly) professional self:
-- 🔬 I’m a project leader who likes to get to the base of things - like the code my team writes.
+- 🔬 I’m a product owner who likes to get to the base of things - like the code my team writes.
 - 🎈 I'm enthusiastic and commited to whatever I set my mind to!
 - ⚽️ I'm a team player and take great pride in seeing my team members happy and satisfied.
 - 🎯 I always put humans first, and fight hard to get everybody (everybody, I insist) on an equal footing.
 
 
 ### About my chore self:
-My pronouns are she/her, and I am a proud intersectional feminist.
+My pronouns are she/her, and I am a proud inclusive feminist.
 
 ❤️ A few things that I love
 - Doodling, and going to the museum at night to draw the artwork of others.
