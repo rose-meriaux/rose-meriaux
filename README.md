@@ -13,24 +13,15 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-
-### About my (mostly) professional self:
-- 🔬 I’m a product owner who likes to get to the base of things - like the code my team writes.
-- 🎈 I'm enthusiastic and commited to whatever I set my mind to!
-- ⚽️ I'm a team player and take great pride in seeing my team members happy and satisfied.
-- 🎯 I always put humans first, and fight hard to get everybody (everybody, I insist) on an equal footing.
-
-
-### About my chore self:
-My pronouns are she/her, and I am a proud inclusive feminist.
+My pronouns are she/her
 
 ❤️ A few things that I love
 - Doodling, and going to the museum at night to draw the artwork of others.
 - Makeovers of all kinds - I just love when things get better, in any way! 
 - Singing all the time - if I'm singing while you're talking to me, please don't mind, I probably didn't even realize I was doing it cause I was focusing on what you were saying.
-- Also: languages, poetry, second hand & vintage clothes & furniture, longboarding, reading, gardening...
+- Also: languages, poetry, second hand & vintage clothes & furniture, reading...
 
 🙈 Things that make me uncomfortable 
 - Moving around in the dark. Not scared of the dark, as long as I'm staying still!
 - When the whole room claps together at the end of a play or any live performance.
-- Feets (I mean, gross).
+- Feet (I mean, gross).
